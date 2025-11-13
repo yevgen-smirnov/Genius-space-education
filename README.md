@@ -1,1 +1,1 @@
-# Genius-space-education
+# Genius.Space-Education
